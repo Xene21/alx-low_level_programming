@@ -1,0 +1,1 @@
+Blue Spike, more pointers
